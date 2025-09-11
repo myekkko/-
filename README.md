@@ -2,7 +2,7 @@
 
 𓎟𓎟𓎟𓎟𓎟𓎟
 
-<span style="color: #305222"> *^q^ @MYEKKKO* </span>
+<span style="color: #305222"> *^q^* **@** *MYEKKKO* </span>
 
 
 
