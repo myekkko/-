@@ -7,4 +7,4 @@
 <span style="color: #305222"> *^q^* **@** *MYEKKKO* 
 
 ![Image](https://github.com/user-attachments/assets/b6d2ad7a-a2c8-496d-a1dc-8eda90e1fd60)
-<p align="center"> THIS IS FOR PONYTOWN!! </p>
+<p align="center"> ``deep down... sorrow`` </p>
