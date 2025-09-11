@@ -1,9 +1,8 @@
-<p align="center">social anxiety; dniuf...𓏵  #1 kool lifesteal smp fan - 🍏🪲</p>
+<p align="center">social anxiety; dniuf...𓏵  - 🪉🎼</p>
 
-𓎟𓎟𓎟𓎟𓎟𓎟
+﹒︶︶ rblx; xtofuluxx ‿ \ ⚰️
 
-<span style="color: #305222"> *^q^* **@** *MYEKKKO* </span>
+<span style="color: #305222"> *^q^* **@** *MYEKKKO* 
 
-
-
-![Image](https://github.com/user-attachments/assets/1820e8f7-680d-43c6-ba9a-8da09cf8db64)
+![Image](https://github.com/user-attachments/assets/b6d2ad7a-a2c8-496d-a1dc-8eda90e1fd60)
+<p align="center"> THIS IS FOR PONYTOWN!! </p>
