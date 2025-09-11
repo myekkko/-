@@ -1,3 +1,3 @@
-<p align="center">@myekkko</p>
+<p align="center">social anxiety; dniuf...𓏵  #1 kool lifesteal smp fan - 🍏🪲</p>
 
 
